@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development and design
 - 🌱 I’m currently developing mys skills
 - 💞️ I’m looking to collaborate on any projects and learn from others
-- 📫 Reach me on whatsapp +260777449283
+- 📫 Reach me on whatsapp +260762228215
 
 
 <!---
